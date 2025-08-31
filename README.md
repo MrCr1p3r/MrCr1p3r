@@ -1,4 +1,4 @@
-# Hi there, I'm Yehor Tonkyi! 👋
+# Hi there, I'm Yehor! 👋
 *aka MrCr1p3r*
 
 ## 🚀 About Me
